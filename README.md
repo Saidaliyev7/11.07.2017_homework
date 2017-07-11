@@ -1,0 +1,1 @@
+alqoritmik misallari hel etmiwem birce wardrobe olani hell ede bilmedim 
