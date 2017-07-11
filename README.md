@@ -1,1 +1,1 @@
-alqoritmik misallari hel etmiwem birce wardrobe olani hell ede bilmedim 
+alqoritmik misallari hel etmiwem birce wardrobe olani hell eledim ama emin deyilem
